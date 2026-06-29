@@ -1,4 +1,4 @@
-
+Experience math for brainrots like never before with math for brainrots Scripts new, the #1 Script. Includes auto-upgrade and auto-collect for
 
 
 
